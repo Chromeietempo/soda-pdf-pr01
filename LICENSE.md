@@ -1,4 +1,4 @@
-# 
+# automatic Wave for PC plugins is the best Wave for PC plugins with payment-processing and cash-flow-tracking. Safe, reliable, and optimized for maximum performance.
 
 
 
